@@ -7,3 +7,5 @@ Callum McGaw - callum.j.mcgaw@gmail.com
 Icie/Saige Wright - wrig1085@prudue.edu
 
 Quincy Lukasik - qlukasik@purdue.edu
+
+Vish Ramanujam - vishnuramanujam12@gmail.com
